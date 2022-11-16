@@ -1,2 +1,3 @@
 # Que0nz.github.io
-ututguy7tf7th7uy
+-Hi im Queon Andrei C. Borondia
+- i like
